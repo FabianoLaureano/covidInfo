@@ -1,4 +1,4 @@
-![home](https://user-images.githubusercontent.com/5856379/125670286-60d09320-158a-4b1b-b7cc-45e376a9f786.jpg)
+![covid](https://user-images.githubusercontent.com/5856379/134094352-45e1324f-7470-4d13-a843-7b5470f63be0.jpg)
 
 ## 🧪 Tecnologias
 
